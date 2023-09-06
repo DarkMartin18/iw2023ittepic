@@ -34,3 +34,9 @@ Creación de tabla
 | Marlett Alessandra|https://github.com/Alessandra222|
 | Juan Antonio |https://github.com/Railgun124|
 
+Colaboradores
+![image](https://github.com/DarkMartin18/iw2023ittepic/assets/102496264/7ee585c4-d430-4594-83a4-86731c9d79a5)
+![image](https://github.com/DarkMartin18/iw2023ittepic/assets/102496264/859aae0a-e0c5-4427-bba0-11cf4b3cfee9)
+![image](https://github.com/DarkMartin18/iw2023ittepic/assets/102496264/654ad2e9-232e-4138-8af1-9b22e7c629b0)
+![image](https://github.com/DarkMartin18/iw2023ittepic/assets/102496264/ab44d219-b994-4cc5-adea-a04a724fb9ea)
+![image](https://github.com/DarkMartin18/iw2023ittepic/assets/102496264/2f86f06f-f492-4aed-a780-c2e3824c7c39)
